@@ -43,7 +43,7 @@ A good video: https://www.youtube.com/watch?v=RtIGoSxram4
 
 6. Get a good 5ft Natural Bamboo Yoga Stick and try varied moves. Karma Heart brand.  
 
-    Plus, here's a great resource: https://www.ncbi.nlm.nih.gov/pmc/articles/PMC10098077/
+Plus, here's a great resource: https://www.ncbi.nlm.nih.gov/pmc/articles/PMC10098077/
 
 Rolling Post
 
