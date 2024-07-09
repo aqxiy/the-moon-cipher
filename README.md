@@ -37,13 +37,13 @@ A good video: https://www.youtube.com/watch?v=RtIGoSxram4
 
 4. Simple exercise band exercises. be careful, follow concrete instructionals. Try a time and set/rep ratio of between 2/3 - 3/4. Direction/side you begin the exercise on counts. here and elsewhere.
 
-A good video: https://www.youtube.com/watch?v=scH9TrlSOO4
+    A good video: https://www.youtube.com/watch?v=scH9TrlSOO4
 
 5. Walking and shuffling either direction leaning slightly forwards/backwards with core atvarious levels of tension and with feet at either 8-15 deg outward or 35 degree outward. Plus, try intermediate angles of bodily tilt direction (or, diagonals).
 
 6. Get a good 5ft Natural Bamboo Yoga Stick and try varied moves. Karma Heart brand.  
 
-Plus, here's a great resource: https://www.ncbi.nlm.nih.gov/pmc/articles/PMC10098077/
+    Plus, here's a great resource: https://www.ncbi.nlm.nih.gov/pmc/articles/PMC10098077/
 
 Rolling Post
 
