@@ -21,13 +21,13 @@ The existing modalities compatible with my understanding of the condition are:
 
 | By making a "sssshhhh" sound as you try to coordinate your abs toward stability
 
-|| By {
+|| By 
 
-1. a. Take a deep breath in from your diaphragm. As you exhale, draw your belly button toward your spine.
-2. b. For 360-degree core activation, contract the muscles in the front and side of your core, as well as those in your lower back.
-3. c. Hold the contraction for a second before releasing.
+  1. a. Take a deep breath in from your diaphragm. As you exhale, draw your belly button toward your spine.
+  2. b. For 360-degree core activation, contract the muscles in the front and side of your core, as well as those in your lower back.
+  3. c. Hold the contraction for a second before releasing.
 
-}
+
 
 ||| My technique: With arms straight at your side, move them outwards and upwards in a loop, then inhale + contract/activate sharply but minorly + apply steps 2-3 from above.
 
