@@ -38,7 +38,7 @@ A good video: https://www.youtube.com/watch?v=RtIGoSxram4
 
 5. Walking and shuffling either direction leaning slightly forwards/backwards with core atvarious levels of tension and with feet at either 8-15 deg outward or 35 degree outward. Plus, try intermediate angles of bodily tilt direction (or, diagonals).
 
-6. Get a good 5ft Natural Bamboo Yoga Stick and try varied moves. Karma Heart brand.  
+6. A good 5ft Natural Bamboo Yoga Stick and varied movements. Karma Heart brand works well.  
 
 Plus, here's a great resource: https://www.ncbi.nlm.nih.gov/pmc/articles/PMC10098077/
 
