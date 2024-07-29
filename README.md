@@ -34,7 +34,7 @@ A good video: https://www.youtube.com/watch?v=RtIGoSxram4
 
 O1. Simple exercise band exercises. be careful, follow concrete instructionals. Try a time and set/rep ratio of between 2/3 - 3/4. Direction/side you begin the exercise on counts. here and elsewhere.
 
-    A good video: https://www.youtube.com/watch?v=scH9TrlSOO4
+   A good video: https://www.youtube.com/watch?v=scH9TrlSOO4
 
 O2. Walking and shuffling either direction leaning slightly forwards/backwards with core atvarious levels of tension and with feet at either 8-15 deg outward or 35 degree outward. Plus, try intermediate angles of bodily tilt direction (or, diagonals).
 
