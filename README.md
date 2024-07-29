@@ -1,13 +1,17 @@
 # the-moon-cipher
 
-### A recompiled scoliosis pt methodology.
+### A recompiled scoliosis pt methodology. Or just a summary and minor refinement of good options. 
 
 ## Established:
 1. Pilates
 2. Foundation Training with/without on minor incline & @ angles on incline.
 3. Pacing and shuffling with varied body tilts and foot outward anglings.
 4. Varied angle and grip technique + position with long dowel rod.
-5. Core Strengthening and Stabilization exercises. Often, it's completely fine to take a generic core strengthening and/or stabilization exercise from Google and modify by tensing/engaging core throughout, particularly the transversus abdominus, which when correctly modified can serve to provide steady relief. That's aligned with what my PT for Schroth suggested. You can engage your core reliably in a few ways.
+5. Core Strengthening and Stabilization exercises. Often, it's completely fine to take a generic core strengthening and/or stabilization exercise from Google and modify by tensing/engaging core throughout, particularly the transversus abdominus, which when correctly modified can serve to provide steady relief. That's aligned with what my PT for Schroth suggested. You can engage your core reliably in a few ways. Continued below. 
+6. Electrical stimulation https://github.com/aqxiy/tens   @ https://pubmed.ncbi.nlm.nih.gov/6606235/ @
+
+
+
    
 -- Otherwise & further, the incorporation of 2/3 - 3/4 ratio range to rep counts (mostly 5/7, 7/10) with rotate 180 & lightly say "ok" between sets where ratio range is applied
 
