@@ -22,7 +22,7 @@ You can engage your core reliably in a few ways:
 
   1. a. Take a deep breath in from your diaphragm. As you exhale, draw your belly button toward your spine.
   2. b. For 360-degree core activation, contract the muscles in the front and side of your core, as well as those in your lower back.
-  3. c. Hold the contraction for a second before releasing.
+  3. c. Hold the contraction for a second before releasing but try to concentration in a way that mantains a level of tension.
 
 
 
