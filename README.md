@@ -28,7 +28,7 @@ You can engage your core reliably in a few ways:
 
 ||| My technique: With arms straight at your side, move them outwards and upwards in a loop, then inhale + contract/activate sharply but minorly + apply steps 2-3 from above.
 
-A good video: https://www.youtube.com/watch?v=RtIGoSxram4
+    A good video: https://www.youtube.com/watch?v=RtIGoSxram4
 
 **Cont. prior numbering**
 
