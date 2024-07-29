@@ -16,6 +16,7 @@ Hello: I'd like to share my approach to treating scoliosis, generally as a spina
 
    
 -- Otherwise & further, the incorporation of 2/3 - 3/4 ratio range to rep counts (mostly 5/7, 7/10) with rotate 180 & lightly say "ok" between sets where ratio range is applied
+-- a good pattern is 7-5 ; 5-7 ; 7-5 ; 5-7
 
 ## Extended Tutorial
 You can engage your core reliably in a few ways:
