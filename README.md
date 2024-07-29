@@ -2,6 +2,8 @@
 
 ### A recompiled scoliosis pt methodology. Or just a summary and minor refinement of good options. 
 
+Hello: I'd like to share my approach to treating scoliosis, generally as a spinal cord defect erroneously altering bodily alignment and spinal curvature.
+
 ## Established:
 1. Pilates
 2. Foundation Training with/without on minor incline & @ angles on incline.
