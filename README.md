@@ -4,7 +4,7 @@
 
 ## Established:
 1. Pilates
-2. Foundation Training with/without on minor incline.
+2. Foundation Training with/without on minor incline & @ angles on incline.
 3. Pacing and shuffling with varied body tilts and foot outward anglings.
 4. Varied angle and grip technique + position with long dowel rod.
 5. Core Strengthening and Stabilization exercises. Often, it's completely fine to take a generic core strengthening and/or stabilization exercise from Google and modify by tensing/engaging core throughout, particularly the transversus abdominus, which when correctly modified can serve to provide steady relief. That's aligned with what my PT for Schroth suggested. You can engage your core reliably in a few ways.
