@@ -32,13 +32,13 @@ A good video: https://www.youtube.com/watch?v=RtIGoSxram4
 
 **Cont. prior numbering**
 
-4. Simple exercise band exercises. be careful, follow concrete instructionals. Try a time and set/rep ratio of between 2/3 - 3/4. Direction/side you begin the exercise on counts. here and elsewhere.
+O1. Simple exercise band exercises. be careful, follow concrete instructionals. Try a time and set/rep ratio of between 2/3 - 3/4. Direction/side you begin the exercise on counts. here and elsewhere.
 
     A good video: https://www.youtube.com/watch?v=scH9TrlSOO4
 
-5. Walking and shuffling either direction leaning slightly forwards/backwards with core atvarious levels of tension and with feet at either 8-15 deg outward or 35 degree outward. Plus, try intermediate angles of bodily tilt direction (or, diagonals).
+O2. Walking and shuffling either direction leaning slightly forwards/backwards with core atvarious levels of tension and with feet at either 8-15 deg outward or 35 degree outward. Plus, try intermediate angles of bodily tilt direction (or, diagonals).
 
-6. A good 5ft Natural Bamboo Yoga Stick and varied movements. Karma Heart brand works well.  
+O3. A Karma Heart 5ft Natural Bamboo Yoga Stick and varied movements.   
 
 Plus, here's a great resource: https://www.ncbi.nlm.nih.gov/pmc/articles/PMC10098077/
 
